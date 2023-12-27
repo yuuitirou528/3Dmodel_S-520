@@ -55,7 +55,7 @@ yuuitirou528は一切の責任を負いません。
 
 　　　　X(旧Twitter）：@yuuitirou528
     
-　　　　mail：yuuitirou528@yahoo.co.jp（見落としがち…）
+　　　　mail：XXXXXXXXXXXXXXXXXスパム対策（見落としがち…）
     
 
 　
